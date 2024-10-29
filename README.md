@@ -12,5 +12,5 @@
 # Monomon Champion "Stoner" by captdanieldore 10/21/2024
 <img src="https://github.com/BigMurph619/TheMurphVerse/blob/main/Images/caps%20cruel.png?raw=true">
 
-# Monomon Champion "Bob" by captaindanieldore 10/28/2024
+# Monomon Champion "Bobsey" by captaindanieldore 10/28/2024
 <img src="https://github.com/BigMurph619/Hall-of-Fame/blob/main/Cap's%20DAUWG.png">
